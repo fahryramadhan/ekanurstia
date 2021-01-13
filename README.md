@@ -1,0 +1,2 @@
+# ekanurstia
+CV Lamaran Eka
